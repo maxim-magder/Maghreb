@@ -1,0 +1,2 @@
+# Maghreb
+Maghreb Locations
